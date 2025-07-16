@@ -51,8 +51,8 @@
 
 📫 **How to reach me:**
 
-- LinkedIn: [Bianca VVV](https://www.linkedin.com/in/biancavvv)
-- Email: *[add your email if you want it public]*
+- LinkedIn: [Bianca VVV](https://www.linkedin.com/in/veleanu-bianca-a2240b158/)
+- Email: veleanubiancamihaela@yahoo.com
 
 ---
 
